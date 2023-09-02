@@ -23,6 +23,10 @@ Unique Visitors: 15,000+ <br>
 Current Subscribers: 3000+<br>
 Current Favourites: 70+
 
+## Total Stats
+Total Unique Visitors: 50,000+<br>
+Total Subscribers: 20,000+<br>
+Total Favourites: 450+<br>
 
 ## Shout-outs
 Thank you anyone who has helped me with my questions in the Discord. I really appreciate all the help. <br>
